@@ -1,1 +1,0 @@
-# Hackintosh_x570
